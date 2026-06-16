@@ -1,0 +1,1 @@
+# analise_empirica_sodL_sodQ
